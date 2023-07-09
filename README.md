@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TopeRaheem
-- 👀 I’m interested in getting a line
+- 👀 I’m interested in getting a life
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on anything productive i guess
 - 📫 How to reach me: through my email
